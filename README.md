@@ -8,7 +8,7 @@ current hyperfixations
 </p>
 
 <p align="center">
-the traitors (tv), rhythm doctor, roblox in general (specifically roleplay games (EVEN more specifically generic zombie apocalypse rp)), my ocs ^_^, rhythm games! i love my keyboard which is currently on my shelf right now! right above my ppccccc!! ^_^
+the traitors (tv), rhythm doctor, roblox in general (specifically roleplay games (EVEN more specifically generic zombie apocalypse rp)), my ocs ^_^, rhythm games! i love my keyboard (instrument) which is currently on my shelf right now! right above my ppccccc!! ^_^
 </p>
 
 <p align="center">
