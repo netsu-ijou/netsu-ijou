@@ -1,4 +1,8 @@
 <p align="center">
+last edit: may/08/2024 11:40pm on a school night unprepared for a quiz tommorow help me
+</p>
+
+<p align="center">
 <img src="https://decohoard.carrd.co/assets/images/gallery23/5e2fd859.gif?v=3fd34f6c" />
 </p>
 
