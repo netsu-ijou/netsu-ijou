@@ -1,11 +1,7 @@
 
 
 <p align="center">
-last edit: may/08/2024 11:40pm on a school night unprepared for a quiz tommorow help me
-</p>
-
-<p align="center">
-update: may/09/2024 2:30 pm ↑↑↑: im gonna fail that quiz i swear
+last edit: may/08/2024 11:40pm on a school night
 </p>
 
 <p align="center">
@@ -13,7 +9,21 @@ update: may/09/2024 2:30 pm ↑↑↑: im gonna fail that quiz i swear
 </p>
 
 <p align="center">
-hi AHH AHHHHH
+status meanings
+</p>
+
+<p align="center">
+online = most likely on-tab. c+h, sure!
+</p>
+<p align="center">
+away = more likely to respond 2 whispers, c+h is always welcomed!
+</p>
+<p align="center">
+busy = in a bad mood, not nv but most likely wont talk. c+h still appreciated ^_^
+</p>
+
+<p align="center">
+AHH AHHHHH
 current hyperfixations
 </p>
 
