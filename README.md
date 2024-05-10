@@ -28,9 +28,9 @@ current hyperfixations
 </p>
 
 <p align="center">
-the traitors (tv), rhythm doctor, roblox in general (specifically roleplay games (EVEN more specifically generic zombie apocalypse rp)), my ocs ^_^, rhythm games! i love my keyboard (instrument) which is currently on my shelf right now! right above my ppccccc!! ^_^
+the traitors (tv), rhythm doctor, roblox in general (specifically gzarp, doomspire defense, periastron stars rpg. also a little bit of bsap, hellmet and skullbeat. mention those games next to me and ill start rambling)
 </p>
 
 <p align="center">
-id turn on my roblox joins on but i have my classmates friended and i cant afford getting exposed roleplaying in a zombie game as characters with the opposite gender as me LMAOO
+id turn on my roblox joins on but i have my classmates friended and i cant afford getting exposed roleplaying in a zombie game as characters with the opposite gender as me LMAOO. im a chronical roleplayer
 </p>
