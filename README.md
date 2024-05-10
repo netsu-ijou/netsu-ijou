@@ -9,7 +9,7 @@ last edit: may/08/2024 11:40pm on a school night
 </p>
 
 <p align="center">
-status meanings
+# status meanings
 </p>
 
 <p align="center">
