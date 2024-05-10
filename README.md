@@ -28,7 +28,7 @@ current hyperfixations
 </p>
 
 <p align="center">
-the traitors (tv), rhythm doctor, roblox in general (specifically gzarp, doomspire defense, periastron stars rpg. also a little bit of bsap, hellmet and skullbeat. mention those games next to me and ill start rambling)
+the traitors (tv), rhythm doctor, roblox in general (specifically generic zombie apocalypse rp, doomspire defense, periastron stars rpg. also a little bit of blood sweat and pixels, hellmet and skullbeat. mention those games next to me and ill start rambling)
 </p>
 
 <p align="center">
