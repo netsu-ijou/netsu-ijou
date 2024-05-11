@@ -32,5 +32,5 @@ the traitors (tv), rhythm doctor, roblox in general (specifically generic zombie
 </p>
 
 <p align="center">
-if my joins are turned on im either playing some Freaky kinda game or roleplaying
+if my joins are turned off im either playing some Freaky kinda game or roleplaying
 </p>
