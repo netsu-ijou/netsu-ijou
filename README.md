@@ -32,5 +32,5 @@ the traitors (tv), rhythm doctor, roblox in general (specifically generic zombie
 </p>
 
 <p align="center">
-id turn on my roblox joins on but i have my classmates friended and i cant afford getting exposed roleplaying in a zombie game as characters with the opposite gender as me LMAOO. im a chronical roleplayer
+if my joins are turned on im either playing some Freaky kinda game or roleplaying
 </p>
