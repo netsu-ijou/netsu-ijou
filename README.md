@@ -16,10 +16,10 @@ status meanings
 online = most likely on-tab. c+h, sure!
 </p>
 <p align="center">
-away = more likely to respond 2 whispers, c+h is always welcomed!
+away = something between online and busy. i'm in a reallly neutral mood interpret that as you with. c+h ok ^_^
 </p>
 <p align="center">
-busy = in a bad mood, not nv but most likely wont talk. c+h still appreciated ^_^
+busy = in a bad baad mood, not nv but most likely wont talk. c+h still appreciated ^_^
 </p>
 <p align="center">
 status meanings invalid when i'm during regiment activities. or, take them lightly.
