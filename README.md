@@ -21,6 +21,9 @@ away = more likely to respond 2 whispers, c+h is always welcomed!
 <p align="center">
 busy = in a bad mood, not nv but most likely wont talk. c+h still appreciated ^_^
 </p>
+<p align="center">
+status meanings invalid when i'm during regiment activities. or, take them lightly.
+</p>
 
 <p align="center">
 AHH AHHHHH
