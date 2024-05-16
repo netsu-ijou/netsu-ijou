@@ -19,7 +19,7 @@ online = most likely on-tab. c+h, sure!
 away = something between online and busy. i'm in a reallly neutral mood interpret that as you wish. c+h ok ^_^
 </p>
 <p align="center">
-busy = in a bad baad mood, not nv but most likely wont talk. c+h still appreciated ^_^
+busy = iwc/iwec. in a bad mood, not nv but most likely wont talk. c+h still appreciated ^_^
 </p>
 <p align="center">
 status meanings invalid when i'm during regiment activities. or, take them lightly.
