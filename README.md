@@ -23,10 +23,10 @@ status meanings
 online = most likely on-tab. c+h, sure!
 </p>
 <p align="center">
-away = something between online and busy. i'm in a reallly neutral mood interpret that as you wish. c+h ok ^_^
+away = something between online and busy. i'm in a reallly neutral mood interpret that as you wish
 </p>
 <p align="center">
-busy = iwc/iwec. in a bad mood, not nv but most likely wont talk. c+h still appreciated ^_^
+busy = iwc/iwec. in a bad mood, not nv but most likely wont talk and im on ponytown just to grind hours
 </p>
 
 ***
