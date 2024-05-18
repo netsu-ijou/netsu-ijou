@@ -3,6 +3,9 @@
 <p align="center">
 github constantly under edits lool this layout will change like once in 2 days
 </p>
+<p align="center">
+i follow random people. you may not know me, but I usually follow cool-looking people during regiment activities. (read: @FlintAfterDark account)
+</p>
 
 <p align="center">
 <img src="https://decohoard.carrd.co/assets/images/gallery23/5e2fd859.gif?v=3fd34f6c" />
