@@ -1,7 +1,7 @@
 
 
 <p align="center">
-i am in love with survivalist from doomspire defense roblox
+[en/pl and a little bit of cz]. i am in love with survivalist from doomspire defense roblox
 </p>
 <p align="center">
 i follow random people. you may not know me, but I usually follow cool-looking people during regiment activities. (read: @FlintAfterDark account)
