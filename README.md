@@ -1,19 +1,23 @@
 
 
 <p align="center">
-github constantly under edits lool this layout will change like once in 2 days
+i am in love with survivalist from doomspire defense roblox
 </p>
 <p align="center">
 i follow random people. you may not know me, but I usually follow cool-looking people during regiment activities. (read: @FlintAfterDark account)
 </p>
 
+***
+
 <p align="center">
-<img src="https://decohoard.carrd.co/assets/images/gallery23/5e2fd859.gif?v=3fd34f6c" />
+<img src="https://files.catbox.moe/sc5aow.png" />
 </p>
 
 <p align="center">
 status meanings
 </p>
+
+***
 
 <p align="center">
 online = most likely on-tab. c+h, sure!
@@ -24,8 +28,11 @@ away = something between online and busy. i'm in a reallly neutral mood interpre
 <p align="center">
 busy = iwc/iwec. in a bad mood, not nv but most likely wont talk. c+h still appreciated ^_^
 </p>
+
+***
+
 <p align="center">
-status meanings invalid when i'm during regiment activities. or, take them lightly.
+status meanings are valid everytime, even during regiment activities.
 </p>
 
 <p align="center">
@@ -33,10 +40,12 @@ AHH AHHHHH
 current hyperfixations
 </p>
 
+***
+
 <p align="center">
-the traitors (tv), rhythm doctor, roblox in general (specifically generic zombie apocalypse rp, doomspire defense, periastron stars rpg. also a little bit of blood sweat and pixels, hellmet and skullbeat. mention those games next to me and ill start rambling)
+the traitors (tv), rhythm doctor, roblox (generic zombie apocalypse rp, doomspire defense, periastron stars rpg, hellmet, skullbeat, blood sweat and pixels VERY HEAVY ON DOOMSPIRE DEFENSE i love dd), also a little bit of zombies
 </p>
 
 <p align="center">
-if my joins are turned off (on roblox) im either playing some Freaky kinda game or roleplaying
+if my joins are turned off (on roblox) im either playing some Freaky kinda game or roleplaying. or im paranoid of one of my irls joining me
 </p>
