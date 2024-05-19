@@ -14,7 +14,7 @@ i follow random people. you may not know me, but I usually follow cool-looking p
 </p>
 
 <p align="center">
-status meanings
+read this! https://bundlrs.cc/netsu-ijou
 </p>
 
 ***
