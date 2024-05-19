@@ -49,3 +49,7 @@ the traitors (tv), rhythm doctor, roblox (generic zombie apocalypse rp, doomspir
 <p align="center">
 if my joins are turned off (on roblox) im either playing some Freaky kinda game or roleplaying. or im paranoid of one of my irls joining me
 </p>
+
+<p align="center">
+<img src="https://files.catbox.moe/dbkvxh.png" />
+</p>
