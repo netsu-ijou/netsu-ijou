@@ -6,7 +6,7 @@ i was @keitai-renwa. hi im flint or ian and im a ƒяєαкatron 4000
 
 </p>
 <p align="center">
-i follow random people. you may not know me, but I usually follow cool-looking people during regiment activities. (read: @FlintAfterDark account)
+i follow random people. you may not know me, but I usually follow cool-looking people during regiment activities
 </p>
 
 ***
