@@ -11,8 +11,7 @@ i follow random people. you may not know me, but I usually follow cool-looking p
 
 ***
 
-<p align="center">
-read this https://bundlrs.cc/netsu-ijou
+<p align="center">info bundlrs in remaking
 </p>
 
 <p align="center">
