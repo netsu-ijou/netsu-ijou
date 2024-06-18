@@ -15,5 +15,5 @@ i follow random people. you may not know me, but I usually follow cool-looking p
 </p>
 
 <p align="center">
-<img src="https://files.catbox.moe/dbkvxh.png" />
+<img src="https://files.catbox.moe/7ky2m1.png" />
 </p>
