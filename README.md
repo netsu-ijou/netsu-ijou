@@ -9,6 +9,10 @@ i was @keitai-renwa. hi I am flint or ian and im a ƒяєαкatron 4000
 i give out #Free followers during regiment activities hheh
 </p>
 
+<p align="center">
+c+h encouraged , w2i at all times unless you can see i'm moving/in a conversation
+</p>
+
 ***
 
 <p align="center">info bundlrs in remaking
