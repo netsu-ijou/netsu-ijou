@@ -1,4 +1,6 @@
-
+<p align="center">
+<img src="https://komarev.com/ghpvc/?username=netsu-ijou&color=green"
+</p>
 
 <p align="center">
 i was @keitai-renwa. hi I am flint or ian and im a ƒяєαкatron 4000
