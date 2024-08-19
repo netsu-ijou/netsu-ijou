@@ -8,19 +8,12 @@ i was @keitai-renwa. hi I am flint or ian and im a ƒяєαкatron 4000
 
 </p>
 <p align="center">
-i give out #Free followers during regiment activities hheh
-</p>
-
-<p align="center">
-im a extravert. i WILL yap </p>
-
-<p align="center">
-c+h encouraged , w2i at all times unless you can see i'm moving/in a conversation. i ALWAYS have this github linked in my ponies
+c+h, struggling with health so im not that active on ponytown anymore
 </p>
 
 ***
 
-<p align="center">info bundlrs in remaking
+<p align="center">a proper info bundlrs will most likely never appear 
 </p>
 
 <p align="center">
