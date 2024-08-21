@@ -11,6 +11,11 @@ i was @keitai-renwa. hi I am flint or ian and im a ƒяєαкatron 4000
 c+h, struggling with health so im not that active on ponytown anymore
 </p>
 
+</p>
+<p align="center">
+won't share my atabook until further notice
+</p>
+
 ***
 
 <p align="center">a proper info bundlrs will most likely never appear 
