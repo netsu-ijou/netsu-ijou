@@ -13,6 +13,11 @@ c+h, struggling with health so im not that active on ponytown anymore
 
 </p>
 <p align="center">
+sitting either above docks under the mountains or phighting area
+</p>
+
+</p>
+<p align="center">
 won't share my atabook until further notice
 </p>
 
