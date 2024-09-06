@@ -23,7 +23,7 @@ won't share my atabook until further notice
 
 ***
 
-<p align="center">a proper info bundlrs will most likely never appear 
+<p align="center">i lied. https://crgn.cc/delivery
 </p>
 
 <p align="center">
