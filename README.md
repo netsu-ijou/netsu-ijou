@@ -23,9 +23,6 @@ won't share my atabook until further notice
 
 ***
 
-<p align="center">i lied. https://crgn.cc/delivery
-</p>
-
 <p align="center">
 <img src="https://files.catbox.moe/7ky2m1.png" />
 </p>
