@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://komarev.com/ghpvc/?username=netsu-ijou&color=green"
+<img src="https://komarev.com/ghpvc/?username=netsu-ijou&color=blue"
 </p>
 
 <p align="center">
