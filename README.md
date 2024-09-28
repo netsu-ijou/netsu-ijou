@@ -8,7 +8,7 @@ i was @keitai-renwa. hi I am flint or ian and im a ƒяєαкatron 4000
 
 </p>
 <p align="center">
-c+h, struggling with health so im not that active on ponytown anymore
+c+h encouraged!, struggling with health so im not that active on ponytown anymore
 </p>
 
 </p>
