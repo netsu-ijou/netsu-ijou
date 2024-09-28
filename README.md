@@ -1,28 +1,9 @@
 <p align="center">
-<img src="https://komarev.com/ghpvc/?username=netsu-ijou&color=blue"
-</p>
-
-<p align="center">
-i was @keitai-renwa. hi I am flint or ian and im a ƒяєαкatron 4000
-</p>
-
-</p>
-<p align="center">
-c+h encouraged!, struggling with health so im not that active on ponytown anymore
-</p>
-
-</p>
-<p align="center">
-sitting either above docks under the mountains or phighting area
-</p>
-
-</p>
-<p align="center">
-won't share my atabook until further notice
+<img src="https://komarev.com/ghpvc/?username=netsu-ijou&color=orange"
 </p>
 
 ***
 
 <p align="center">
-<img src="https://files.catbox.moe/7ky2m1.png" />
+<img src="https://files.catbox.moe/4io6er.png">
 </p>
