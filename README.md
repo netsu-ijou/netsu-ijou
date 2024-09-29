@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-yours truly, 2095
+yours truly, 2095.
 </p>
 
 ***
