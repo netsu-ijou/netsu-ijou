@@ -15,7 +15,7 @@ staff member in a few regiments. flint/ian. i sometimes also claim the name "dan
 c+h encouraged
 </p>
 <p align="center">
-i follow random people during regiment activities dont like then block ;-;
+i follow random people during regiment activities don't like then block
 </p>
 
 <p align="center">
