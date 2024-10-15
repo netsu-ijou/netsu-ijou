@@ -12,10 +12,13 @@ yours truly, 2095.
 staff member in a few regiments. flint/ian. i sometimes also claim the name "danica"
 </p>
 <p align="center">
+i have tinnitus
+</p>
+<p align="center">
 c+h encouraged
 </p>
 <p align="center">
-i follow random people during regiment activities don't like then block
+i follow random people
 </p>
 
 <p align="center">
