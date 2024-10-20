@@ -15,10 +15,10 @@ staff member in a few regiments. flint/ian. i sometimes also claim the name "dan
 i have tinnitus
 </p>
 <p align="center">
-c+h encouraged
+c+h encouraged PLLEASSSSS ilove when peopel sit beside me i fly around in joy like a tiny fly andim not even exafgerrating
 </p>
 <p align="center">
-i follow random people
+i follow peoplle id love to Befriend ... heh #Followingmaxxing
 </p>
 
 <p align="center">
