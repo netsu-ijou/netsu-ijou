@@ -20,6 +20,9 @@ c+h encouraged PLLEASSSSS ilove when peopel sit beside me i fly around in joy li
 <p align="center">
 i follow peoplle id love to Befriend ... heh #Followingmaxxing
 </p>
+<p align="center">
+my atabook is linked if u wanna leave me a message : ) weird messages will be deleted
+</p>
 
 <p align="center">
 <img src="https://files.catbox.moe/4io6er.png">
