@@ -21,7 +21,7 @@ c+h encouraged PLLEASSSSS ilove when peopel sit beside me i fly around in joy li
 i follow peoplle id love to Befriend ... heh #Followingmaxxing
 </p>
 <p align="center">
-my atabook is linked if u wanna leave me a message : ) weird messages will be deleted
+my atabook https://vine-staff.atabook.org : ) also linked under my profile
 </p>
 
 <p align="center">
