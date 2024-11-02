@@ -12,7 +12,7 @@ yours truly, 2095.
 staff member in a few regiments. flint/ian. i sometimes also claim the name "danica"
 </p>
 <p align="center">
-i have tinnitus
+i have (constantly progressing) tinnitus
 </p>
 <p align="center">
 c+h encouraged PLLEASSSSS ilove when peopel sit beside me i fly around in joy like a tiny fly andim not even exafgerrating
