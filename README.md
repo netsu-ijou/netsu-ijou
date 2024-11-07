@@ -12,7 +12,7 @@ yours truly, 2095.
 staff member in a few regiments. flint/ian. i sometimes also claim the name "danica"
 </p>
 <p align="center">
-i have (constantly progressing) tinnitus
+headphones-induced tinnitus . taking meds (1 with side effects) for it everyday, hence i won't be voice-chatting a lot if not at all
 </p>
 <p align="center">
 c+h encouraged PLLEASSSSS ilove when peopel sit beside me i fly around in joy like a tiny fly andim not even exafgerrating
