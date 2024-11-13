@@ -3,6 +3,10 @@
 </p>
 
 <p align="center">
+as of november 13 i am on 6 different meds 😭 sickness got to me down bad please have patience & mercy for gods sake
+</p>
+
+<p align="center">
 yours truly, 2095.
 </p>
 
