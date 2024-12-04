@@ -27,6 +27,9 @@ i loovee my online friends (i have like. Only 2 of them +friendless irl)
 <p align="center">
 my atabook https://vine-staff.atabook.org : ) also linked under my profile
 </p>
+<p align="center">
+sign my tree too! if u want. https://colormytree.me/2024/01JE8V689373X4Q2M1BC4QKH5K
+</p>
 
 <p align="center">
 <img src="https://files.catbox.moe/4io6er.png">
