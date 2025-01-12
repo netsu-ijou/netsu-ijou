@@ -13,7 +13,7 @@ yours truly, 2095.
 flint/ver (abbreviated from @vervittia)
 </p>
 <p align="center">
-mild tinnitus, sound sensitivity & light eustachian tube problems . i will vc really rarely if not at all. please take care of your ears. tinnitus is a terrible thing to bear everyday im serious
+mild tinnitus, sound sensitivity & light eustachian tube problems . please take care of your ears. tinnitus is a terrible thing to bear everyday im serious
 </p>
 <p align="center">
 very fragile mindset. i tend to overthink tenfold.
