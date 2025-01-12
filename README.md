@@ -25,10 +25,10 @@ c+h encouraged PLLEASSSSS ilove when peopel sit beside me i fly around in joy li
 i follow peoplle id love to Befriend ... heh #Followingmaxxing
 </p>
 <p align="center">
-i loovee my online friends (i have like. Only 2 of them +friendless irl. Uoure amazing @rozu @luna !!!!!!!!!!!!!)
+i love & appreciate everyone who stayed by my side. love u both R & L
 </p>
 <p align="center">
-my atabook https://vine-staff.atabook.org : ) also linked under my profile
+my atabook https://vine-staff.atabook.org . don't expect fast replies
 </p>
 
 <p align="center">
