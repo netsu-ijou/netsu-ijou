@@ -10,7 +10,7 @@ yours truly, 2095.
 ***
 
 <p align="center">
-staff member in a few regiments. lieu/flint. i sometimes also claim the name "danica"
+flint/ver (abbreviated from @vervittia)
 </p>
 <p align="center">
 mild tinnitus, sound sensitivity & light eustachian tube problems . i will vc really rarely if not at all. please take care of your ears. tinnitus is a terrible thing to bear everyday im serious
