@@ -13,10 +13,13 @@ yours truly, 2095.
 flint/ver (abbreviated from @vervittia)
 </p>
 <p align="center">
-mild tinnitus, sound sensitivity & light eustachian tube problems . please take care of your ears. tinnitus is a terrible thing to bear everyday im serious
+mild tinnitus; sound sensitivity & light eustachian tube problems . please take care of your ears. tinnitus is a terrible thing to bear everyday. i'm serious
 </p>
 <p align="center">
-very fragile mindset. i tend to overthink tenfold.
+i overthink tenfold. very fragile mindset
+</p>
+<p align="center">
+20% that whenevr i'm on ponytown i'm drunk
 </p>
 <p align="center">
 c+h encouraged PLLEASSSSS ilove when peopel sit beside me i fly around in joy like a tiny fly andim not even exafgerrating
