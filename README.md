@@ -28,7 +28,7 @@ c+h encouraged PLLEASSSSS ilove when peopel sit beside me i fly around in joy li
 i follow peoplle id love to Befriend ... heh #Followingmaxxing
 </p>
 <p align="center">
-i love & appreciate everyone who stayed by my side. love u both R & L ure the best i could ask for
+me and the two bad bitches i pulled by having adhd (love you both R & L)
 </p>
 <p align="center">
 my atabook https://vine-staff.atabook.org . don't expect fast replies
