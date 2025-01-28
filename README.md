@@ -19,6 +19,9 @@ get. up.
 flint/ver (abbreviated from @vervittia)
 </p>
 <p align="center">
+to whoever knows me on ponytown, sorry i've lost like all of my motivation to keep my relationships up lol
+</p>
+<p align="center">
 mild tinnitus; sound sensitivity & light eustachian tube problems . please take care of your ears. take off your headphones. tinnitus is a terrible thing to bear everyday. i'm serious
 </p>
 <p align="center">
@@ -32,9 +35,6 @@ unironical caffeine addict
 </p>
 <p align="center">
 c+h encouraged PLLEASSSSS ilove when peopel sit beside me i fly around in joy like a tiny fly andim not even exafgerrating
-</p>
-<p align="center">
-i follow people which look cool
 </p>
 <p align="center">
 me and the two bad bitches i pulled by having adhd (love you both R & L)
