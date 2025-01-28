@@ -4,7 +4,13 @@
 
 
 <p align="center">
-yours truly, 2095.
+you aren't afraid of what others will think of you
+</p>
+<p align="center">
+you are scared of what you think about yourself.
+</p>
+<p align="center">
+get. up.
 </p>
 
 ***
@@ -16,7 +22,7 @@ flint/ver (abbreviated from @vervittia)
 mild tinnitus; sound sensitivity & light eustachian tube problems . please take care of your ears. take off your headphones. tinnitus is a terrible thing to bear everyday. i'm serious
 </p>
 <p align="center">
-i overthink tenfold. very damn fragile mindset!
+i overthink tenfold. very damn fragile mindset
 </p>
 <p align="center">
 20% that whenevr i'm on ponytown i'm drunk. no replies= passed out on my gaming chair or playing offtab. or idont feel like matching your energy at the time
