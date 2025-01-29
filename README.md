@@ -16,7 +16,7 @@ get. up.
 ***
 
 <p align="center">
-flint/ver (abbreviated from @vervittia)
+flint/ver (abbreviated from @vervittia). you can also call me by my username abbreviations (verv/vervi/vervit). i'll appreciate those
 </p>
 <p align="center">
 currently struggling with acute burnout. to whoever knows me on ponytown, sorry i've lost like all of my motivation to keep my relationships up lol. i'm barely keeping up with what i have right now
