@@ -25,7 +25,10 @@ currently struggling with acute burnout. to whoever knows me on ponytown, sorry 
 mild tinnitus; sound sensitivity & light eustachian tube problems . please take care of your ears. take off your headphones. tinnitus is a terrible thing to bear everyday. i'm serious
 </p>
 <p align="center">
-antisocial when exhausted (all the time lol have fun). unironical caffeine addict . 20% that whenever im up on ponytown im drunk. no replies = dont' wanna match your energy at the moment or actually busy w/ gaming on roblox or whatever else which i'll want to download on steam
+antisocial when exhausted (all the time lol have fun). unironical caffeine addict
+</p>
+<p align="center">
+when im on ponytown and u get no replies im either drunk passed out on my gaming chair, crying in my duvets, actually playing a roblox/steam game or don't feel like matching your energy in the given moment spin the wheel or something have fun guessing lol
 </p>
 <p align="center">
 c+h is alright idc about my pixels just dont cover me up on purpose i am not gonna fuck around with my permahide button and be aware of it
@@ -34,7 +37,7 @@ c+h is alright idc about my pixels just dont cover me up on purpose i am not gon
 me and the two bad bitches i pulled by having adhd (love you both R & L)
 </p>
 <p align="center">
-my atabook https://vine-staff.atabook.org . don't expect fast replies.
+my atabook https://vine-staff.atabook.org . don't expect fast replies
 </p>
 
 <p align="center">
