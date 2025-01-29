@@ -19,28 +19,22 @@ get. up.
 flint/ver (abbreviated from @vervittia)
 </p>
 <p align="center">
-to whoever knows me on ponytown, sorry i've lost like all of my motivation to keep my relationships up lol
+currently struggling with acute burnout. to whoever knows me on ponytown, sorry i've lost like all of my motivation to keep my relationships up lol. i'm barely keeping up with what i have right now
 </p>
 <p align="center">
 mild tinnitus; sound sensitivity & light eustachian tube problems . please take care of your ears. take off your headphones. tinnitus is a terrible thing to bear everyday. i'm serious
 </p>
 <p align="center">
-antisocial when exhausted. i overthink tenfold. very damn fragile mindset
+antisocial when exhausted (all the time lol have fun). unironical caffeine addict . 20% that whenever im up on ponytown im drunk. no replies = dont' wanna match your energy at the moment or actually busy w/ gaming on roblox or whatever the fuck else
 </p>
 <p align="center">
-20% that whenevr i'm on ponytown i'm drunk. no replies= passed out on my gaming chair or playing offtab. or idont feel like matching your energy at the time
-</p>
-<p align="center">
-unironical caffeine addict
-</p>
-<p align="center">
-c+h encouraged PLLEASSSSS ilove when peopel sit beside me i fly around in joy like a tiny fly andim not even exafgerrating
+c+h is alright idc about my pixels just dont cover me up on purpose i am not gonna fuck around with my permahide button and be aware of it
 </p>
 <p align="center">
 me and the two bad bitches i pulled by having adhd (love you both R & L)
 </p>
 <p align="center">
-my atabook https://vine-staff.atabook.org . don't expect fast replies
+my atabook https://vine-staff.atabook.org . don't expect fast replies.
 </p>
 
 <p align="center">
