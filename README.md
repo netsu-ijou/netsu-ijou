@@ -22,7 +22,7 @@ flint/ver (abbreviated from @vervittia). you can also call me by my username abb
 currently struggling with acute burnout. to whoever knows me on ponytown, sorry i've lost like all of my motivation to keep my relationships up lol. i'm barely keeping up with what i have right now
 </p>
 <p align="center">
-mild tinnitus; sound sensitivity & light eustachian tube problems . please take care of your ears. take off your headphones. tinnitus is a terrible thing to bear everyday. i'm serious
+mild tinnitus, medicated; sound sensitivity & light eustachian tube problems . please take care of your ears. take off your headphones. tinnitus is a terrible thing to bear everyday. i'm serious
 </p>
 <p align="center">
 antisocial when exhausted (all the time lol have fun). unironical caffeine addict
