@@ -16,7 +16,7 @@ get. up.
 ***
 
 <p align="center">
-flint/ver (abbreviated from @vervittia). you can also call me by my username abbreviations (verv/vervi/vervit). i'll appreciate those
+ver/flint (abbreviated from @vervittia). you can also call me by my username abbreviations (verv/vervi/vervit). i'll appreciate those
 </p>
 <p align="center">
 en/pl dreaming of learning norwegian one day
