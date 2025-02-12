@@ -43,6 +43,9 @@ c+h is alright idc about my pixels just dont cover me up on purpose i am not gon
 me and the two bad bitches i pulled by having adhd (love you both R & L)
 </p>
 <p align="center">
+my strawbpage https://astro-barrage.straw.page u can draw yay
+</p>
+<p align="center">
 my atabook https://vine-staff.atabook.org . don't expect fast replies
 </p>
 
