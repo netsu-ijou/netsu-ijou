@@ -34,7 +34,7 @@ mild tinnitus, medicated; sound sensitivity & light eustachian tube problems . p
 antisocial when exhausted (all the time LMAO). unironical caffeine addict shooting them up energy drinks like phighting mvps on rocket
 </p>
 <p align="center">
-when im on ponytown and u get no replies im either drunk passed out on my gaming chair, crying in my duvets, actually playing a roblox/steam game or don't feel like matching your energy in the given moment spin the wheel or something have fun guessing lol
+when im on ponytown and u get no replies im either passed out on my gaming chair, crying in my duvets, actually playing a roblox/steam game or don't feel like matching your energy in the given moment spin the wheel or something have fun guessing lol
 </p>
 <p align="center">
 c+h is alright idc about my pixels just dont cover me up on purpose i am not gonna fuck around with my permahide button and be aware of it @_@
