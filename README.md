@@ -40,7 +40,7 @@ when im on ponytown and u get no replies im either passed out on my gaming chair
 c+h is alright idc about my pixels just dont cover me up on purpose i am not gonna fuck around with my permahide button and be aware of it @_@
 </p>
 <p align="center">
-me and the two bad bitches i pulled by having adhd (love you both R & L)
+me and the bad bitches i pulled by having adhd love u both @L & I SWEAR TOGOD @R I WILL PELT YOU WITH ROCKS⠀ ⠀  .
 </p>
 <p align="center">
 my strawbpage https://astro-barrage.straw.page u can draw yay
