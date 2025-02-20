@@ -37,10 +37,10 @@ antisocial when exhausted (all the time LMAO). unironical caffeine addict shooti
 when im on ponytown and u get no replies im either passed out on my gaming chair, crying in my duvets, actually playing a roblox/steam game or don't feel like matching your energy in the given moment spin the wheel or something have fun guessing lol
 </p>
 <p align="center">
-c+h is alright idc about my pixels just dont cover me up on purpose i am not gonna fuck around with my permahide button and be aware of it @_@
+c+h is alright idc about my pixels just dont cover me up on purpose i am not gonna fuck around with my permahide button and be aware of it
 </p>
 <p align="center">
-me and the bad bitches i pulled by having adhd love u both @L & I SWEAR TOGOD @R I WILL PELT YOU WITH ROCKS⠀ ⠀  .
+me and the bad bitches i pulled by having adhd love u both R and L (and a few other people which actually stick with me)
 </p>
 <p align="center">
 my strawbpage https://astro-barrage.straw.page u can draw yay
