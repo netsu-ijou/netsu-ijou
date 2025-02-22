@@ -31,7 +31,7 @@ currently struggling with acute burnout. to whoever knows me on ponytown, sorry 
 mild tinnitus, medicated; sound sensitivity & light eustachian tube problems . please take care of your ears. take off your headphones. tinnitus is a terrible thing to bear everyday. i'm serious. also an adhd bearer since the age of 6 but my family won't let me diagnose
 </p>
 <p align="center">
-antisocial when exhausted (all the time LMAO). unironical caffeine addict shooting them up energy drinks like phighting mvps on rocket
+antisocial when exhausted (all the time LMAO). unironical caffeine addict shooting them up energy drinks like phighting mvps
 </p>
 <p align="center">
 when im on ponytown and u get no replies im either passed out on my gaming chair, crying in my duvets, actually playing a roblox/steam game or don't feel like matching your energy in the given moment spin the wheel or something have fun guessing lol
