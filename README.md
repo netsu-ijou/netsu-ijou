@@ -4,30 +4,30 @@
 
 
 <p align="center">
-and if you're in love, then you are the lucky one
+And if you're in love, then you are the lucky one
 <p align="center">
-'cause most of us are bitter over someone
+'cause most of us are bitter over someone...
 <p align="center">
 10.10.2024 ♡
 
 ***
 
 <p align="center">
-flint/verv. he/any pronouns. level 300+, vinestaff/rocket/boombox/biograft player. player for crossroads central (CRC)
+Flint/Vervi, Ver for friends. He/Any pronouns. Level 300+, Vine Staff/Rocket/Boombox/Biograft player. Participant in Crossroads Central (CRC).
 <p align="center">
-if i see any rocket/vinestaff/boombox haters on my sight you're getting hidden sorry not sorry
+If I see any Vine Staff/Rocket/Boombox haters on my sight you're getting hidden LOL sorry not sorry.
 <p align="center">
-c+h always on, i don't check ponytown 80% of the time so idrc lol
+C+H always allowed. I don't check Pony Town often.
 <p align="center">
-i appreciate all my friends & everyone who stuck with me
+I have ADHD and I'm a very awkward person. It may take me some time to form coherent sentences.
 
 <p align="center">
-my strawbpage https://astro-barrage.straw.page u can draw yay
+Strawpage https://astro-barrage.straw.page
 </p>
 <p align="center">
-my atabook https://vine-staff.atabook.org . don't expect fast replies
+Atabook https://vine-staff.atabook.org . Don't expect fast replies
 </p>
 
 <p align="center">
-<img src="https://files.catbox.moe/4io6er.png">
+<img src="https://files.catbox.moe/op95pi.png">
 </p>
