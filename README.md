@@ -29,5 +29,5 @@ Atabook https://vine-staff.atabook.org . Don't expect fast replies
 </p>
 
 <p align="center">
-<img src="https://files.catbox.moe/op95pi.png">
+<img src="https://files.catbox.moe/i18506.png">
 </p>
