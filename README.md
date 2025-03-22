@@ -17,7 +17,7 @@ Flint/Vervi, Ver for friends. He/Any pronouns. Level 300+, Vine Staff/Rocket/Boo
 <p align="center">
 If I see any Vine Staff/Rocket/Boombox haters on my sight you're getting hidden LOL sorry not sorry.
 <p align="center">
-C+H always allowed. I don't check Pony Town often.
+C+H always allowed, even when I have IWC/DNI on. I don't check Pony Town often either way.
 <p align="center">
 I have ADHD and I'm a very awkward person. It may take me some time to form coherent sentences.
 
