@@ -13,7 +13,7 @@ And if you're in love, then you are the lucky one
 ***
 
 <p align="center">
-Flint/Vervi, Ver for friends. He/Any pronouns. Level 300+, Vine Staff/Rocket/Boombox/Biograft player. Participant in Crossroads Central (CRC).
+Flint/Verv, Ver for friends. He/Any pronouns. Level 300+, Vine Staff/Rocket/Boombox/Biograft player. Participant in Crossroads Central (CRC).
 <p align="center">
 If I see any Vine Staff/Rocket/Boombox haters on my sight you're getting hidden LOL sorry not sorry.
 <p align="center">
