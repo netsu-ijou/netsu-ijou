@@ -9,7 +9,7 @@ And if you're in love, then you are the lucky one
 'cause most of us are bitter over someone...
 
 <p align="center">
-10.10.2024. ♡ Love you R *Platonic. You're the best friend I could ask for :)
+10.17.2024. ♡ Love you R *Platonic. You're the best friend I could ask for :)
 
 ***
 
