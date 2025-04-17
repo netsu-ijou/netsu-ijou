@@ -23,12 +23,5 @@ C+H always allowed, even when I have IWC/DNI on. I don't check Pony Town often e
 I have ADHD and I'm a very awkward person. It may take me some time to form coherent sentences.
 
 <p align="center">
-Strawpage https://astro-barrage.straw.page
-</p>
-<p align="center">
-Atabook https://vine-staff.atabook.org . Don't expect fast replies
-</p>
-
-<p align="center">
 <img src="https://files.catbox.moe/i18506.png">
 </p>
