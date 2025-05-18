@@ -20,7 +20,7 @@ If I see any Vine Staff/Rocket/Boombox haters on my sight you're getting hidden 
 <p align="center">
 C+H always allowed, even when I have IWC/DNI on. I don't check Pony Town often either way.
 <p align="center">
-I have ADHD and I'm a very awkward person. It may take me some time to form coherent sentences.
+I have ADHD and I'm a very(!!) awkward person. It may take me some time to form coherent sentences.
 <p align="center">
 Fantastic Frontier (Roblox) fans PLSSSSSSSSSSSSSSSSSSSSSS INT
 
