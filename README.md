@@ -4,7 +4,7 @@
 
 
 <p align="center">
-And one day, I am gonna grow wings
+One day, I am gonna grow wings
 <p align="center">
       
 <p align="center">
