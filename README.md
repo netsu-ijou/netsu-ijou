@@ -11,7 +11,7 @@ One day, I am gonna grow wings
      
           
 <p align="center">
-10.17.2024. ♡ Love you R *Platonic. You're the best friend I could ask for :)
+10.17.2024. ♡ Love you R *Platonic. You gave me wings. I'll never forget you for that. :)
 
 ***
 
