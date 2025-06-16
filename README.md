@@ -11,6 +11,8 @@
           
 <p align="center">
 10.17.2024. ♡ Love you R *Platonic. You gave me wings. I'll never forget you for that. :)
+<p align="center">
+https://pronouns.cc/@parra
 
 ***
 
