@@ -17,7 +17,7 @@ https://pronouns.cc/@parra
 ***
 
 <p align="center">
-Flint/Vervi, Ver for friends. He/Any pronouns. Level 350+, Vine Staff/Rocket/Slingshot/Biograft/Boombox player. Participant in Crossroads Central (CRC), an competitive Phighting server.
+Flint/Vervi, Ver for friends. He/Any pronouns. Level 400+, Vine Staff/Rocket/Slingshot/Biograft/Boombox player. Participant in Crossroads Central (CRC), an competitive Phighting server.
 <p align="center">
 If I see any Vine Staff/Rocket/Boombox haters on my sight you're getting hidden LOL sorry not sorry.
 <p align="center">
