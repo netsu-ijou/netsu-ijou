@@ -27,7 +27,7 @@ C+H always allowed, even when I have IWC/DNI on. I don't check Pony Town often e
 <p align="center">
 I have ADHD and I'm a very(!!) awkward person. It may take me some time to form coherent sentences.
 <p align="center">
-Fantastic Frontier (Roblox) fans PLSSSSSSSSSSSSSSSSSSSSSS INT
+Fantastic Frontier (Roblox) & Car Seat Headrest fans PLSSSSSSSSSSSSSSSSSSSSSS INT
 
 <p align="center">
 <img src="https://files.catbox.moe/i18506.png">
