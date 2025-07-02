@@ -12,18 +12,18 @@
 <p align="center">
 10.17.2024. ♡ Love you R *Platonic. You gave me wings. I'll never forget you for that. :)
 <p align="center">
-https://pronouns.cc/@parra
+Read!!!! -> https://pronouns.cc/@parra
 <p align="center">
 https://medkited.straw.page
 
 ***
 
 <p align="center">
-Flint/Vervi, Ver for friends. He/Any pronouns. Level 400+, Vine Staff/Rocket/Slingshot/Biograft/Boombox player. Participant in Crossroads Central (CRC), an competitive Phighting server.
+Flint/Vervi, Ver mostly for friends. EN/PL, He/Any pronouns. P! Level 400+, I love playing Vine Staff in opens :) (Primarily trying to play on Europe-oriented servers (Hesse/North Holland))
 <p align="center">
-If I see any Vine Staff/Rocket/Boombox haters on my sight you're getting hidden LOL sorry not sorry.
+If I see any Vine Staff/Rocket haters on my sight you're getting hidden LOL sorry not sorry.
 <p align="center">
-C+H always allowed, even when I have IWC/DNI on. I don't check Pony Town often either way.
+C+H always allowed, even when I have IWC/DNI on! I don't check Pony Town often either way.
 <p align="center">
 I have ADHD and I'm a very(!!) awkward person. It may take me some time to form coherent sentences.
 <p align="center">
