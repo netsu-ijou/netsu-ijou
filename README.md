@@ -10,7 +10,7 @@
      
           
 <p align="center">
-10.17.2024. ♡ Love you R *Platonic. You gave me wings. I'll never forget you for that. :)
+10.17.2024 ♡ R *Platonic
 <p align="center">
 Read!!!! -> https://pronouns.cc/@parra
 <p align="center">
