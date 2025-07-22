@@ -10,8 +10,6 @@
      
           
 <p align="center">
-10.17.2024 Love ya R; *Platonic. You changed my life ♡
-<p align="center">
 Read!!!! -> https://pronouns.cc/@parra
 <p align="center">
 https://medkited.straw.page
