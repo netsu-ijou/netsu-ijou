@@ -17,15 +17,13 @@ https://medkited.straw.page
 ***
 
 <p align="center">
-Flint/Vervi, Ver mostly for friends. EN/PL, He/Any pronouns. P! Level 400+, I love playing Vine Staff in opens :) (Primarily trying to play on Europe-oriented servers (Hesse/North Holland))
-<p align="center">
-If I see any Vine Staff/Rocket haters on my sight you're getting hidden LOL sorry not sorry.
+Flint/Vervi, Ver mostly for friends. EN/PL, He/Any pronouns :)
 <p align="center">
 C+H always allowed, even when I have IWC/DNI on! I don't check Pony Town often either way.
 <p align="center">
 I have ADHD and I'm a very(!!) awkward person. It may take me some time to form coherent sentences.
 <p align="center">
-Car Seat Headrest listeners, Fantastic Frontier (Roblox) & Monster Hunter: World players HIT ME UP PLEASE
+Some of my interests are Car Seat Headrest, Phighting! & Fantastic Frontier (Roblox), Monster Hunter: World & UU/Unstable Universe
 
 <p align="center">
 <img src="https://files.catbox.moe/i18506.png">
