@@ -11,8 +11,6 @@
           
 <p align="center">
 Read!!!! -> https://pronouns.cc/@parra
-<p align="center">
-https://medkited.straw.page
 
 ***
 
