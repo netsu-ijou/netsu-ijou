@@ -10,18 +10,18 @@
      
           
 <p align="center">
-Read!!!! -> https://pronouns.cc/@parra
+read!!!! -> https://pronouns.cc/@parra
 
 ***
 
 <p align="center">
-Flint/Vervi, Ver mostly for friends. EN/PL, He/Any pronouns :)
+flint/ver, also vervi. EN/PL, he/any pronouns :)
 <p align="center">
-C+H always allowed, even when I have IWC/DNI on! I don't check Pony Town often either way
+i looove to c+h with other people i'm just too socially awkward to reach out first
 <p align="center">
-I have ADHD and I'm a very(!!) awkward person. It may take me some time to form coherent sentences. Given that, the way I act in pt may be a bit chaotic (random reconnects, constantly relocating/moving). It usually is not intentional
+i have adhd and I'm a very(!!) awkward person. it may take me some time to form coherent sentences. given that, the way I act in pt may be a bit chaotic (random reconnects, constantly relocating/moving, random pony editor). it usually is not intentional
 <p align="center">
-Some of my interests are Car Seat Headrest, Phighting! & Fantastic Frontier (Roblox), Monster Hunter: World & UU/Unstable Universe
+some of my interests are car seat headrest, phighting! & fantastic frontier (roblox), monster hunter: world & UU/unstable universe
 
 <p align="center">
 <img src="https://files.catbox.moe/i18506.png">
