@@ -18,7 +18,7 @@ read!!!! -> https://pronouns.cc/@parra
 <p align="center">
 flint/ver, also vervi. EN/PL, he/any pronouns :)
 <p align="center">
-i looove to c+h with other people!!!!!!! i'm just too awkward to reach out first!!!!!!!
+i looove to c+h with other people!!!!!!! i'm just too awkward to reach out first!!!!!!!aaaaaa
 <p align="center">
 i have adhd and I'm a very(!!) awkward person. it may take me some time to form coherent sentences. given that, the way I act in pt may be a bit chaotic (random reconnects, constantly relocating/moving, random pony editor). it usually is not intentional
 <p align="center">
