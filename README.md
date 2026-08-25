@@ -28,7 +28,3 @@ some of my interests are car seat headrest, phighting! (lvl 580 vinestaff main) 
 <p align="center">
 please don't try to befriend me on a longer term scale and escalate our friendship (eg. carrying interacting over to discord). my perception of friendships and my social battery is really bad, and i already happened to hurt a bunch of people in my previous friendships :(.<br>
 if possible, i'd like to keep things only within ponytown. sorry!
-
-<p align="center">
-<img src="https://steam-widget.com/widget/img?id=76561199229037310&width=450" width="450">
-</p>
