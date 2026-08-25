@@ -30,5 +30,5 @@ please don't try to befriend me on a longer term scale and escalate our friendsh
 if possible, i'd like to keep things only within ponytown. sorry!
 
 <p align="center">
-<img src="https://steam-widget.com/widget/img?id=76561199229037310&width=375" width="375">
+<img src="https://steam-widget.com/widget/img?id=76561199229037310&width=450" width="450">
 </p>
